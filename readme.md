@@ -1,2 +1,2 @@
-tentang submission dicoding dan projeknya
+tentang submission dicoding dan projeknya.
 
